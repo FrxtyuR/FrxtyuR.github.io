@@ -1,1 +1,0 @@
-# FrxtyuR.github.io
